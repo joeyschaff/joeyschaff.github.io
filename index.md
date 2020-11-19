@@ -1,5 +1,5 @@
-### Joey Schaff
+## Joey Schaff
 
-## 16 Years old
+### 16 Years old
 
-## Graphic Design Student
+### Graphic Design Student
